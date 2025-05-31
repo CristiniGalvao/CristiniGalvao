@@ -6,8 +6,7 @@
 
 - 📈 Em busca de cada vez mais conhecimento.
   
-- “É melhor você tentar algo, vê-lo não funcionar e aprender com isso, do que não fazer nada.”
--                                                                              Mark Zuckerberg
+- “É melhor você tentar algo, vê-lo não funcionar e aprender com isso, do que não fazer nada.”                                                                                                                                                                                                                                                                                                                                                                             Mark Zuckerberg
 
 ---
 
